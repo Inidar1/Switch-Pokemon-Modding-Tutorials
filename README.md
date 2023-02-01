@@ -1,1 +1,1 @@
-# Pokemon-Scarlet-Violet-Modding-Tutorials
+# Nintendo Switch Pokemon Modding Tutorials
